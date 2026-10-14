@@ -50,6 +50,8 @@ BULLYING. IF I SEE ANYONE. ANY. ONE, BULLYING SOMEONE IM SLIMING THEM OUT IDFC
 
 
  <h3 align="left"> ゛I sєє мγsєιƒ ıη 
+
+ {insert boosfer speech at king's selection}
   
   
   <h3 align="left"> ゛if 𝘺𝘰𝘶 : </h3> 
